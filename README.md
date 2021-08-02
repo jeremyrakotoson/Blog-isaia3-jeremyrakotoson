@@ -1,2 +1,2 @@
 # Blog-isaia3-ANDRIAMIHAJA RAKOTOSON JEREMY NOMENA - ISAIA3
-Blog portfolio
+Mini Projet de ANDRIAMIHAJA RAKOTOSON Jeremy Nomena - ISAIA 3
